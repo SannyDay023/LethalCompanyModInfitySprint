@@ -1,0 +1,2 @@
+# LethalCompanyModInfitySprint
+LethalCompanyModInfitySprint
